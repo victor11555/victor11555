@@ -6,4 +6,4 @@ You can reach me via email: [vzabroskiu@gmail.com](mailto:vzabroskiu@gmail.com)
 I also have social networks:  
 [Instagram](https://www.instagram.com/victorian_shvirgen/)  
 [VK](https://vk.com/victorian_shvirgen)  
-[Telegram](mailto:vzabroskiu@gmail.com)
+[Telegram](https://telegram.me/victorian_shvirgen)
